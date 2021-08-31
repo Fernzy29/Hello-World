@@ -1,4 +1,4 @@
 # Hello-World
 
-Hi im Sneeden Fernandes 
+Hi, i'm Sneeden Fernandes.
 I'm going to be studying Business Information Techology at University of Bournemouth.
